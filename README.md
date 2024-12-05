@@ -1,1 +1,1 @@
-https://lvivarc2024.onrender.com/
+https://graudin-lviv.onrender.com
